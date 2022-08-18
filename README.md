@@ -1,1 +1,1 @@
-# Freelance-Job
+![banner](Black Minimal Motivation Quote LinkedIn Banner.png)
